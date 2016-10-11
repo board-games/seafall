@@ -1,4 +1,4 @@
-# Pandemic & Pandemic: Legacy
+# SeaFall
 
 SeaFall is a 4X-inspired game (without player elimination/extermination) set in an "age of sail" world reminiscent of our world.
 
@@ -6,26 +6,23 @@ In SeaFall, the world is starting to claw its way out of a dark age and has begu
 
 ## Learn/Discuss
 
-* [How to Play Pandemic](http://boardgames.about.com/od/Pandemic/a/How-to-Play-Pandemic.htm)
 * [BoardGameGeek](https://boardgamegeek.com/boardgame/148261/seafall)
 
 ## See
 
 Looping videos:
 
-* [Police lights flashing](http://www.infinitelooper.com/?v=CuHjGrFA2yY&p=n)
-* [Red spinning emergency lights](http://www.infinitelooper.com/?v=1kIVe1RrIAc&p=n)
+* [Relaxing Ocean Waves at Sunset](https://www.youtube.com/watch?v=_ziUhNerFMI)
+* [Looping Ocean Background](https://youtu.be/C6yVfvhYLPE)
+* [1Hr Cruise Ship Balcony](https://youtu.be/3tFdOqKV2Iw)
 
 ## Hear
 
-* [Spotify Playlist](https://open.spotify.com/user/chrisbielinski/playlist/3lDMiy3bpeN9tUooofMIKY)
+* [Pirates of the Carribean Spotify Playlist](https://open.spotify.com/user/spdforever/playlist/5xkJZ5HsEb27aygbiazHqE)
+* [Ocean Sounds](https://open.spotify.com/user/12102175422/playlist/4Gvup0W0RENA2eVuJjcuvd)
 
 ## Do
 
 ## Eat/Drink
 
-* [Blood Pack Energy Drink](http://www.amazon.com/Harcos-Laboratories-602219-Energy-Potion/dp/B002UJD00G)
-
 ## Other/Props
-
-* [Syringe Pen](http://www.amazon.com/Fun-Express-1-Syringe-Pen/dp/B005GWWYBA/ref=sr_1_1?ie=UTF8&qid=1452271838&sr=8-1&keywords=syringe+fake)
