@@ -18,8 +18,8 @@ Looping videos:
 
 ## Hear
 
-* [Pirates of the Carribean Spotify Playlist](https://open.spotify.com/user/spdforever/playlist/5xkJZ5HsEb27aygbiazHqE)
-* [Ocean Sounds](https://open.spotify.com/user/12102175422/playlist/4Gvup0W0RENA2eVuJjcuvd)
+* [Pirates of the Carribean](https://open.spotify.com/user/spdforever/playlist/5xkJZ5HsEb27aygbiazHqE) Spotify Playlist
+* [Ocean Sounds](https://open.spotify.com/user/12102175422/playlist/4Gvup0W0RENA2eVuJjcuvd) Spotify Playlist
 
 ## Do
 
